@@ -37,3 +37,7 @@ RandomPage for the Butterfly Kiss remix which was her first one but sounds so gr
 People who made remixes for Persona 5 dancing: Shacho, Konishi, Kitajoh, Taku Takahashi, Meguro, Mito, Yukihiro, Shacho.
 There were more people but they didn't publish their name under the work.
 If I forgot someone I would be truly sorry but these are the people I could find.
+
+I do not own any of the music in this mod.
+
+Mod download: https://drive.google.com/open?id=1LR3Q_haeoEp3Np96F-Cx4oBAS9oXnMJ_
